@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Leonljk
+- Not a so-called 'coding' guy but just a guy who like to explore new and fun stuff.
